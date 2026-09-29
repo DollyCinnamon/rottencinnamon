@@ -25,7 +25,6 @@ no rentry— i don't support zionists 𐔌՞. .՞𐦯
 * basic criteria
 * yumeship doubles
 * crk fans
-* forsaken fans
 * TADC fans
 
 ## 𓂃˖♪彡 . if you wanna be friends
