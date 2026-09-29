@@ -12,7 +12,7 @@ no rentry— i don't support zionists 𐔌՞. .՞𐦯
 
 * age : 16
 * Prns : she / her | **comfortable with they / them**
-* questioning
+* questioning my sexuality
 * Trust and anger issues
 * introvert
 * AVPD and Asocial
